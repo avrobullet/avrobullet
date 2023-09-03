@@ -1,1 +1,1 @@
-Data Scientist working for ProCogia
+Data Scientist working for MDA
