@@ -1,1 +1,1 @@
-Software Engineer working for MDA
+Software Engineer working for Miraterra
